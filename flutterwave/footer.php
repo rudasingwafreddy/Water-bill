@@ -1,0 +1,1 @@
+<h5 style="margin-top: -20px">All Rights Reserved. 2021 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Developed by Ruth 2021</h5>
